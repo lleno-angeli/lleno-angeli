@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Lauren Amgeli A. Lleno
+- 👋 Hi, I’m Lauren Angeli A. Lleno
 - 👀 I’m interested in drawing some anime characters
 -  🌱 I’m currently learning how to create a webpage of my own
 - 💞️ I’m looking to collaborate on collecting drawings and sketches
